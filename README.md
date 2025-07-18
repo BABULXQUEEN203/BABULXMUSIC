@@ -20,10 +20,10 @@
 </h2>
 <img src="https://readme-typing-svg.herokuapp.com?color=FF0000&width=420&lines=♦𝙳𝙴𝙿𝙻𝙾𝚈+𝙾𝙽+𝙷𝙴𝚁𝙾𝙺𝚄♦;♨️+𝙽𝙾+𝙷𝙴𝚁𝙾𝙺𝚄+𝙱𝙰𝙽+𝙸𝚂𝚂𝚄𝙴+𝙰𝙻𝚂𝙾+𝚅𝙿𝚂+𝙳𝙴𝙿𝙻𝙾𝚈+📍+𝙿𝚁𝙴𝚂𝙴𝙽𝚃;🎭+𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈+BABUL+🎭">
 <p align="center">
-  <img src="https://envs.sh/bV0.jpg">
+  <img src="https://files.catbox.moe/p0wlo1.jpg">
 </p>
 
-**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [𝐀sif 𝐌ᴜsɪᴄ](https://t.me/NAXQUEEN_BOT)**
+**𝙏𝙀𝙎𝙏 𝘽𝙊𝙏 ➣ [Babul 𝐌ᴜsɪᴄ](https://t.me/BA_X_QUEEN_BOT)**
 
 
 
